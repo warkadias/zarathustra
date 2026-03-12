@@ -1,0 +1,2 @@
+# zarathustra
+Perjalanan Sang Zarathustra
